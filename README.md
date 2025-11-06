@@ -1,0 +1,1 @@
+# Assignment---Mid.-QA-Engineer---Thinkpalm-Technologies
